@@ -19,25 +19,21 @@ Please add your work here and remove the `todo` tag below when you start working
 
 ### Name:
 
-`TODO`
+Jayden Brereton-Julot
 
 
 ### Citation of article:
 
-`TODO`
+HOFFMAN, HUNTER G. VIRTUAL-REALITY THERAPY. 2nd ed., vol. 291, Scientific American, a division of Nature America, Inc., 2004, pp. 58-65, 291 vols, www.jstor.org/stable/26060647.
 
 
 ### Why is this article relevant to the thesis of your Assignment 05?
 
-`TODO`
-
+This book helps us understand what we need to help stop an adoption of dominance of technology
 
 ### Summary of article (200 words):
 
-`TODO`
-
-
+Virtual therapy would help us go into things that will help us grow and make a brand new version of technology and growth making us able to bypass many effects that is caused through people having and getting PTSD from various different and negative. There has been caused lots of problems that makes Technology impact help cause some of the largest innovation possibly ever.
 
 ---
 
-(Did you remember to add your name(s) to the top of this document?)
